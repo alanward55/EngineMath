@@ -1,0 +1,2 @@
+# DISCLAIMER!!!!!!!!
+## TIDAK UNTUK DIPAKAI!!!
